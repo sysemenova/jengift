@@ -1,7 +1,7 @@
 ## Happy birthday, Jen!
 
 ![Image](https://media.discordapp.net/attachments/842747224098078813/970488611076206632/unknown.png?width=992&height=558)
-^ yeah I did that by myself in procreate, was harder than I thought it would be, but I got it!
+↑ yeah I did that by myself in procreate, was harder than I thought it would be, but I got it!
 
 Man you're now one year close to not being a teenager. It's absolutely awe-inspiring that we met we when we were 9, and now we've basically known each other for 10 years?? Well, technically, this coming spring will mark out 10 year. That's so wild.
 
