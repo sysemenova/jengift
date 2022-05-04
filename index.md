@@ -14,10 +14,13 @@ AND YOU GOT AN ABSOLUTELY AMAZING RESEARCH OPPORTUNITY. Like huh????? Babe????? 
 So, the biggest thing I would like you to know is that I am so so proud of you for your progress, for your character development, for your introspection, for your style, for your Teeth, for your Eyes, everything. I am so very proud of you my friend, and I am very proud to be your friend.
 
 _From this..._
+
 ![Image](https://media.discordapp.net/attachments/842747224098078813/971403214090027048/unknown.png?width=314&height=558)
 
 _... to this (although better pictures must be had lmao)!_
+
 ![Image](https://media.discordapp.net/attachments/842747224098078813/971403279445672026/unknown.png?width=314&height=558)
+
 _we really like to do the elbow holding thing in pictures huh, I'm not complaining_
 
 At this point, you should have gotten an email from Steam with something like "Hat in Time" gift or something like that. I hope you enjoy the base game and all the DLC's :D I heard the Nyakuza Metro is an absolute must have, and is gorgeous, so you can enjoy that to the fullest with your BADASS computer that can actually handle games with intense graphics. Not entirely jealous, not entirely, but definitely at least a little jealous.
