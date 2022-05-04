@@ -1,7 +1,7 @@
 ## Happy birthday, Jen!
 
 ![Image](https://media.discordapp.net/attachments/842747224098078813/970488611076206632/unknown.png?width=992&height=558)
-_Yeah I did that by myself in procreate, was harder than I thought it would be, but I got it!_
+_Yeah I did that by myself in procreate~ T'was harder than I thought it would be, but I got it!_
 
 Man you're now one year close to not being a teenager. It's absolutely awe-inspiring that we met we when we were 9, and now we've basically known each other for 10 years?? Well, technically, this coming spring will mark out 10 year. That's so wild.
 
@@ -11,38 +11,19 @@ Second of all, you actually destroyed the classes. Like damn. You worked So hard
 
 AND YOU GOT AN ABSOLUTELY AMAZING RESEARCH OPPORTUNITY. Like huh????? Babe????? As you go through and learn stuff please tell me what you do and what you learn, I'm deathly curious, legitly. 
 
-You can use the [editor on GitHub](https://github.com/sysemenova/jengift/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+So, the biggest thing I would like you to know is that I am so so proud of you for your progress, for your character development, for your introspection, for your style, for your Teeth, for your Eyes, everything. I am so very proud of you my friend, and I am very proud to be your friend.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+_From this..._
+![Image](https://media.discordapp.net/attachments/842747224098078813/971403214090027048/unknown.png?width=314&height=558)
 
-### Markdown
+_... to this (although better pictures must be had lmao)!_
+![Image](https://media.discordapp.net/attachments/842747224098078813/971403279445672026/unknown.png?width=314&height=558)
+_we really like to do the elbow holding thing in pictures huh, I'm not complaining_
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+At this point, you should have gotten an email from Steam with something like "Hat in Time" gift or something like that. I hope you enjoy the base game and all the DLC's :D I heard the Nyakuza Metro is an absolute must have, and is gorgeous, so you can enjoy that to the fullest with your BADASS computer that can actually handle games with intense graphics. Not entirely jealous, not entirely, but definitely at least a little jealous.
 
-```markdown
-Syntax highlighted code block
+And when you come back for a bit in August, I will take you out to like Panera or some other food place so we can enjoy some nice food while celebrating your existance, albeit belatedly.
 
-# Header 1
-## Header 2
-### Header 3
+YOU'RE GREAT, HAPPY BIRTHDAY, HAVE A SUPER WONDERFUL DAY WHERE YOU RELAX SOME AND EAT SOME GOOD FOOD AND ENJOY GOOD WEATHER HOPEFULLY!!!!!!
 
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/sysemenova/jengift/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+![Image](https://c.tenor.com/DxMIq9-tS5YAAAAM/milk-and-mocha-bear-couple.gif)
